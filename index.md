@@ -5,8 +5,9 @@
 <p align="center">Boozhoo, Adrienne indizhinikaaz </h1>
 
 <p align="center"> 
-<strong> Student  Full-Time Receptionist </strong>
+<strong> Student , Full-Time Receptionist </strong>
 </p>
 
 <p align="center"> 
-Business Administration & 
+Business Administration & Business Owner
+
